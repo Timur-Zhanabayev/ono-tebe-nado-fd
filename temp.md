@@ -1,1 +1,0 @@
-https://github.com/Timur-Zhanabayev/ono-tebe-nado-fd
